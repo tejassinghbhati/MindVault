@@ -1,1 +1,70 @@
-‣楍摮慖汵⁴鿰ꂧ鿰銔਍਍楍摮慖汵⁴獩愠瀠楲慶祣昭物瑳‬景汦湩ⵥ慣慰汢⁥潬慣⁬湫睯敬杤⁥慭慮敧敭瑮愠灰眠瑩⁨敳慭瑮捩猠慥捲⁨湡⁤䅒⁇慣慰楢楬楴獥‮瑉愠汬睯⁳潹⁵潴琠歡⁥潮整ⱳ椠摮硥琠敨⁭潬慣汬ⱹ愠摮愠歳焠敵瑳潩獮甠楳杮愠氠捯污䰠䵌മഊ⌊‣牁档瑩捥畴敲਍਍恠浠牥慭摩਍牧灡⁨䑔਍††獕牥⠨獕牥⤩ⴠ㸭䘠潲瑮湥孤敒捡⁴牆湯整摮൝ †䘠潲瑮湥⁤ⴭ‾楔呰灡呛灩慔⁰摅瑩牯൝ †䘠潲瑮湥⁤ⴭ‾偁孉慆瑳偁⁉慂正湥嵤਍††偁⁉ⴭ‾兓楌整⡛兓楌整䴠瑥摡瑡⥡൝ †䄠䥐ⴠ㸭䌠牨浯孡䌨牨浯䑡⁂敖瑣牯匠潴敲崩਍††偁⁉ⴭ‾汏慬慭佛汬浡⁡䱌嵍਍††偁⁉ⴭ‾楆敬祳瑳浥⡛慍歲潤湷䘠汩獥崩਍恠ൠഊ⌊‣敆瑡牵獥਍‭⨪牐癩捡⵹楆獲⩴㨪䔠敶祲桴湩⁧畲獮氠捯污祬‮潎挠潬摵挠污獬മⴊ⨠匪浥湡楴⁣敓牡档⨪›楆摮渠瑯獥戠獡摥漠⁮敭湡湩Ⱨ渠瑯樠獵⁴敫睹牯獤മⴊ⨠刪䝁倠灩汥湩⩥㨪䄠歳焠敵瑳潩獮愠潢瑵礠畯⁲潮整⁳湡⁤敧⁴䥁札湥牥瑡摥愠獮敷獲甠楳杮传汬浡⹡਍‭⨪慍歲潤湷䔠楤潴⩲㨪吠灩慔⵰慢敳⁤摥瑩牯眠瑩⁨楬敶瀠敲楶睥愠摮洠牡摫睯⁮畳灰牯⹴਍‭⨪敒慬整⁤潎整⩳㨪䄠瑵浯瑡捩污祬猠敥渠瑯獥爠汥瑡摥琠⁯桷瑡礠畯爧⁥畣牲湥汴⁹牷瑩湩⹧਍‭⨪浉潰瑲⨪›慅楳祬椠灭牯⁴潹牵攠楸瑳湩⁧扏楳楤湡瘠畡瑬⁳牯洠牡摫睯⁮潦摬牥⹳਍਍⌣吠捥⁨瑓捡൫ⴊ⨠䘪潲瑮湥⩤㨪删慥瑣‬祔数捓楲瑰‬慔汩楷摮千ⱓ吠灩慔Ɒ䄠楸獯‬界楣敤മⴊ⨠䈪捡敫摮⨪›慆瑳偁ⱉ匠䱑汁档浥ⱹ匠䱑瑩ⱥ䌠牨浯䑡ⱂ传汬浡⹡਍‭⨪浅敢摤湩獧⨪›獠湥整据ⵥ牴湡晳牯敭獲⁠愨汬䴭湩䱩ⵍ㙌瘭⤲爠湵楮杮漠⁮桴⁥慢正湥⹤਍‭⨪䱌⩍㨪传汬浡⁡氨慬慭⤳മഊ⌊‣敓畴⁰湉瑳畲瑣潩獮਍਍⌣‣牐牥煥極楳整൳ⴊ䐠捯敫⁲…潄正牥䌠浯潰敳਍‭祐桴湯㌠㤮ഫⴊ丠摯⹥獪ㄠ⬸਍‭佛汬浡嵡栨瑴獰⼺漯汬浡⹡潣⽭湩瑳污敬⁤湡⁤畲湮湩⁧潬慣汬⹹਍਍⌣‣⸱匠楰⁮灵䌠牯⁥敓癲捩獥਍恠扠獡൨搊捯敫⵲潣灭獯⁥灵ⴠ൤怊恠਍桔獩猠慴瑲⁳桃潲慭䉄‮慍敫猠牵⁥汏慬慭椠⁳畲湮湩⁧湯礠畯⁲潨瑳洠捡楨敮愠⁴桠瑴㩰⼯潬慣桬獯㩴ㄱ㌴怴മഊ⌊⌣㈠‮慂正湥⁤敓畴൰怊恠慢桳਍摣戠捡敫摮਍楰⁰湩瑳污⁬爭爠煥極敲敭瑮⹳硴൴挊⁰⸮ⸯ湥⹶硥浡汰⁥攮癮਍癵捩牯⁮慭湩愺灰ⴠ爭汥慯൤怊恠਍਍⌣‣⸳䘠潲瑮湥⁤敓畴൰怊恠慢桳਍摣映潲瑮湥൤渊浰椠獮慴汬਍灮⁭畲⁮敤൶怊恠਍਍⌣‣⸴倠汵⁬䱌⁍潍敤൬怊恠慢桳਍汯慬慭瀠汵⁬汬浡㍡਍恠ൠഊ⌊‣獕牥䘠潬൷ㄊ‮⨪牃慥整愠丠瑯⩥㨪䌠楬正琠敨∠∫戠瑵潴⁮湩琠敨猠摩扥牡മ㈊‮⨪牗瑩⁥潃瑮湥⩴㨪唠敳琠敨吠灩慔⁰摥瑩牯琠⁯牷瑩⁥湩䴠牡摫睯⹮਍⸳⨠匪浥湡楴⁣敓牡档⨪›睓瑩档琠⁯桴⁥䄢⁉桃瑡•楶睥琠⁯獡⁫畱獥楴湯⁳扡畯⁴潹牵渠瑯獥മ㐊‮⨪敇⁴湁睳牥⩳㨪吠敨䄠⁉敲牴敩敶⁳敲敬慶瑮挠湯整瑸映潲⁭潹牵渠瑯獥愠摮愠獮敷獲瘠慩传汬浡⹡਍# MindVault
+# MindVault 
+
+MindVault is a privacy-first, offline-capable local knowledge management app with semantic search and RAG capabilities. It allows you to take notes, index them locally, and ask questions using a local LLM.
+
+## Architecture
+
+```mermaid
+graph TD
+    User((User)) --> Frontend[React Frontend]
+    Frontend --> TipTap[TipTap Editor]
+    Frontend --> API[FastAPI Backend]
+    API --> SQLite[(SQLite Metadata)]
+    API --> Chroma[(ChromaDB Vector Store)]
+    API --> Ollama[Ollama LLM]
+    API --> Filesystem[(Markdown Files)]
+```
+
+## Features
+- **Privacy-First**: Everything runs locally. No cloud calls.
+- **Semantic Search**: Find notes based on meaning, not just keywords.
+- **RAG Pipeline**: Ask questions about your notes and get AI-generated answers using Ollama.
+- **Markdown Editor**: TipTap-based editor with live preview and markdown support.
+- **Related Notes**: Automatically see notes related to what you're currently writing.
+- **Import**: Easily import your existing Obsidian vaults or markdown folders.
+
+## Tech Stack
+- **Frontend**: React, TypeScript, TailwindCSS, TipTap, Axios, Lucide
+- **Backend**: FastAPI, SQLAlchemy, SQLite, ChromaDB, Ollama.
+- **Embeddings**: `sentence-transformers` (all-MiniLM-L6-v2) running on the backend.
+- **LLM**: Ollama (llama3).
+
+## Setup Instructions
+
+### Prerequisites
+- Docker & Docker Compose
+- Python 3.9+
+- Node.js 18+
+- [Ollama](https://ollama.com) installed and running locally.
+
+### 1. Spin up Core Services
+```bash
+docker-compose up -d
+```
+This starts ChromaDB. Make sure Ollama is running on your host machine at http://localhost:11434.
+
+### 2. Backend Setup
+```bash
+cd backend
+pip install -r requirements.txt
+cp ../env.example .env
+uvicorn main:app --reload
+```
+
+### 3. Frontend Setup
+```bash
+cd frontend
+npm install
+npm run dev
+```
+
+### 4. Pull LLM Model
+```bash
+ollama pull llama3
+```
+
+## User Flow
+1. **Create a Note**: Click the "+" button in the sidebar.
+2. **Write Content**: Use the TipTap editor to write in Markdown.
+3. **Semantic Search**: Switch to the "AI Chat" view to ask questions about your notes.
+4. **Get Answers**: The AI retrieves relevant context from your notes and answers via Ollama.
